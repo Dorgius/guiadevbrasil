@@ -6,7 +6,7 @@
 
 🔖 Me segue no Github: https://github.com/Dorgius/ 👨🏻‍💻 <br>
 🔖 Entra no servidor Guia Dev Brasil para mais conteúdo: https://discord.gg/sFuQKtwFgw 💻 <br>
-🔖 Conecta lá no meu instagram: https://www.linkedin.com/in/Dorgius/ 🌈 <br>
+🔖 Conecta lá no meu instagram: https://www.instagram.com/Dorgius/ 🌈 <br>
 🔖 Fazendo uma doação via PIX a chave é: dorgius@hotmail.com ✔️ <br>
 
 ♻️ Segue meu Github novos repositórios quase toda semana, deixa seu star no repositório, compartilha com seus amigos, e por fim, bons estudos ou bom trabalho, faça bom uso!! ♻️ <br>
